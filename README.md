@@ -1,1 +1,1 @@
-# just first day and lot of errors
+# me.github.io
